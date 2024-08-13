@@ -4,4 +4,4 @@ I pratham gonte i want to be in another field because of my parents i m there in
 
 # interest
 - startup
-- sharearket
+- sharemarket
